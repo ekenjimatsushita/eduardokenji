@@ -16,5 +16,5 @@ Atualmente sou estagiário no SEBRAE e busco constantemente aprender novas tecno
 
 ### 📲 Contatos
 
-- 🤝 [LinkedIn](https://google.com)  
+- 🤝 [LinkedIn](https://www.linkedin.com/in/eduardo-kenji-cortez-matsushita-22111a365/)  
 - 📧 ekenjimatsushita@gmail.com
